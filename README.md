@@ -1,0 +1,2 @@
+# Maxstore.id
+Webcekkuota
